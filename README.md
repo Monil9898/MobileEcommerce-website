@@ -54,9 +54,8 @@ To get a local copy up and running, follow these simple steps.
 
 ### Contact
 
-Email - njthesiya111@gmail.com
+Email - rasadiyamonil@gmail.com
 
-### Usage
 
 
 
